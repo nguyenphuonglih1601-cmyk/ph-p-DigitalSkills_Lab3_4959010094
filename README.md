@@ -17,7 +17,7 @@ trong học tập học phần Phương pháp dạy học tự nhiên - xã hộ
 - Tac gia : [ Hoàng Phúc Ngân*, Nguyễn Thị Tố Uyên*
 *ThS. Trường Đại học Hoa Lư ]
 - Nam xuat ban : [ Nam 2024 ]
-- Nguon / Tap chi : [ Journal of educational equipment ]
+- Nguon / Tap chi : [ Journal of educational equipment/Journal homepage: https://vjol.info.vn/index.php/tctbgd ]
 2. ** Ten bai bao / Tai lieu 2:** [MỘT SỐ BIỆN PHÁP NÂNG CAO NĂNG LỰC DẠY HỌC DỰ ÁN
 CHO SINH VIÊN NGÀNH GIÁO DỤC TIỂU HỌC ]
 - Tac gia : [Nguyễn Hoàng Thảo Quỳnh1
